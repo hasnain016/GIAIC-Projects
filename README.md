@@ -1,2 +1,0 @@
-# GIAIC-Projects
-# GIAIC-Projects
